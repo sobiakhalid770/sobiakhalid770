@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sobiakhalid770
+- 🌱 I’m currently learning ...Programming
+- 😄 Pronouns: ...she/her
